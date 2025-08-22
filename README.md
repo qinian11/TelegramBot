@@ -24,13 +24,14 @@
 | 🚀每日免费节点   | [https://vpnnav.github.io](https://vpnnav.github.io)               | 每天整点准时更新免费高速节点,永久高速节点 |
 | 🌈彩虹群发器   | [https://shop.tg10000.com/buy/1](https://shop.tg10000.com/buy/1)            | 快速高效的消息群发工具，支持多账号切换，适合营销推广  |
 | 免费频道搬运机器人   | 免费机器人[@xnby003bot](https://t.me/xnby003bot)           | 免费机器人[@xnby003bot](https://t.me/xnby003bot) 搭建同款机器人[@sxhzbot](https://t.me/sxhzbot) 👉 [使用教程](https://www.youtube.com/watch?v=rV6vIMFTAPA)，支持频道1比1搬运，频道备份、频道模仿，破解私密频道限制下载转发搬运，频道涨粉神器💰 可文末添加自定义广告按钮，替换指定文本内容  |
+ 禁止转发免费提取搬运机器人   | 免费机器人[@an7773bot](https://t.me/an7773bot)           | 破解频道限制下载转发搬运，频道涨粉神器|
 | 👚AI去衣机器人  | [@Xai1314bot](https://t.me/Xai1314bot?start=U0HSDEJM1525Y3AF)       | 黑科技ai智能机器人，一键去衣换装换脸/视频换脸采用最新ai模型无需建模|
 | 超级索引官方搜索群   | [https://t.me/+kt8DCh74ZmA0ZTc9](https://t.me/+kt8DCh74ZmA0ZTc9)            | 老牌搜索机器人，可以在里面搜索你想要的一切   |
-| 搜索群①   | [@sousuohp](https://t.me/sousuohp)            | 可以在里面搜索你想要的一切   |
-| 搜索群②   | [@jisou20w](https://t.me/jisou20w)            | 可以在里面搜索你想要的一切   |
-| 搜索群③   | [@jisou200000](https://t.me/jisou200000)            | 可以在里面搜索你想要的一切   |
-| 搜索群④   | [@sepiansousuo](https://t.me/sepiansousuo)            | 可以在里面搜索你想要的一切   |
-| 搜索群⑤   | [@kuaisou20w](https://t.me/kuaisou20w)            | 可以在里面搜索你想要的一切   |
+| 搜索群①   | [@souba8](https://t.me/souba8)            | 可以在里面搜索你想要的一切   |
+| 搜索群②   | [@souba8](https://t.me/souba8)         | 可以在里面搜索你想要的一切   |
+| 搜索群③   | [@souba8](https://t.me/souba8)            | 可以在里面搜索你想要的一切   |
+| 搜索群④   | [@souba8](https://t.me/souba8)           | 可以在里面搜索你想要的一切   |
+| 搜索群⑤   | [@souba8](https://t.me/souba8)            | 可以在里面搜索你想要的一切   |
 | ❤️色色搜索   | [@daohangsese](https://t.me/daohangsese)            | 可以在里面搜索你想要的一切   |
 | 🎥搜片神器   | [@soupian20w](https://t.me/soupian20w)            | 发送视频名字即可找到你想要看的片子  |
 | GMGN抓金狗百倍币   | [@gmgnaibot](https://t.me/gmgnaibot?start=i_L2wVVjGF)         | 💰GMGN 是加密货币领域最强大的数据分析平台  |
